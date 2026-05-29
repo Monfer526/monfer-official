@@ -1,2 +1,2 @@
 # monfer-official
-Official PNGs, renders and character assets
+Official Monfer PNGs, renders, stickers and character assets
