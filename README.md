@@ -1,5 +1,5 @@
 # monfer-official
-Official Monfer PNGs, renders, stickers and character assets
+Official Yeronba PNGs, renders, stickers and character assets
 
 - Karoghi Monfer
 - Dagutei Molina
