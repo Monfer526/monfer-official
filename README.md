@@ -6,4 +6,9 @@ Official Yeronba PNGs, renders, stickers and character assets
 - Crabty Sarmibi
 - Banyero Zapeyki
 
+Next Day World:
+- Owen Orson Orozco Obrien
+- Gand Orozco Obrien
+
+
 https://sites.google.com/view/yeronba
